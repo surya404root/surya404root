@@ -105,7 +105,7 @@ All repositories, scripts, and experiments here are created **strictly for educa
 
 ## 📫 Connect With Me
 - GitHub: **@surya404root**
-
+- Instagram: https://www.instagram.com/__surya.__.__?igsh=MTlqamI1ZjJyMW5iaA==
 ---
 
 ⭐ *Secure code. Ethical mindset. Continuous learning.*  
