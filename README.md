@@ -1,7 +1,7 @@
 # 🛡️ Surya | @surya404root  
 ### Security-Focused Developer • Ethical Hacking Learner • Linux / Termux Enthusiast
 
----
+--
 
 ## 👋 Welcome
 Hi, I’m **Surya** — a developer who believes that **good security starts with good code**.
