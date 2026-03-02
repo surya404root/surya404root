@@ -105,10 +105,9 @@ All repositories, scripts, and experiments here are created **strictly for educa
 
 ## 📫 Connect With Me
 - GitHub: **@surya404root**
-- Instagram: https://www.instagram.com/__surya.__.__?igsh=MTlqamI1ZjJyMW5iaA==
-
-https://www.instagram.com/cyberknight.root?igsh=MXY2bTJhM3doaWQ2cg==
-
+- Instagram:
+ 1️⃣ Account: https://www.instagram.com/__surya.__.__?igsh=MTlqamI1ZjJyMW5iaA==
+2️⃣ Account: https://www.instagram.com/cyberknight.root?igsh=MXY2bTJhM3doaWQ2cg==
 - Gmail: surya404.root@gmail.com
 ---
 
