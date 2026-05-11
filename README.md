@@ -103,13 +103,10 @@ All repositories, scripts, and experiments here are created **strictly for educa
 
 ---
 
-## 📫 Connect With Me
+## 📫 Connect With Me On :)
 - GitHub: **@surya404root**
-- Instagram:
+- Instagram: https://www.instagram.com/__surya.__.__?igsh=MTlqamI1ZjJyMW5iaA==
 
-1️⃣ Account: https://www.instagram.com/__surya.__.__?igsh=MTlqamI1ZjJyMW5iaA==
-
-2️⃣ Account: https://www.instagram.com/cyberknight.root?igsh=MXY2bTJhM3doaWQ2cg==
 - Gmail: surya404.root@gmail.com
 ---
 
